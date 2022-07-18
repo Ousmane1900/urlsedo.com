@@ -1,0 +1,2 @@
+# urlsedo.com
+Site affiliate
